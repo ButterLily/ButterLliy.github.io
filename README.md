@@ -1,39 +1,42 @@
-# `Freddy Fazbear's Pizza🍕😋`
-![alt text](https://i.pinimg.com/564x/3d/61/0d/3d610d5ad243e28e6f501d9db5862436.jpg)
+# 𝐅𝐫𝐞𝐝𝐝𝐲 𝐅𝐚𝐳𝐛𝐞𝐚𝐫'𝐬 𝐏𝐢𝐳𝐳𝐚🍕😋
+![save us](https://i.pinimg.com/564x/3d/61/0d/3d610d5ad243e28e6f501d9db5862436.jpg)
 
-## Come on down to Freddy Fazbear's Pizza, a magical✨ place for kids and grown-ups alike, where fantasy and fun come to life🎉! 
+## 𝙲𝚘𝚖𝚎 𝚘𝚗 𝚍𝚘𝚠𝚗 𝚝𝚘 𝙵𝚛𝚎𝚍𝚍𝚢 𝙵𝚊𝚣𝚋𝚎𝚊𝚛'𝚜 𝙿𝚒𝚣𝚣𝚊, 𝚊 𝚖𝚊𝚐𝚒𝚌𝚊𝚕✨ 𝚙𝚕𝚊𝚌𝚎 𝚏𝚘𝚛 𝚔𝚒𝚍𝚜 𝚊𝚗𝚍 𝚐𝚛𝚘𝚠𝚗-𝚞𝚙𝚜 𝚊𝚕𝚒𝚔𝚎, 𝚠𝚑𝚎𝚛𝚎 𝚏𝚊𝚗𝚝𝚊𝚜𝚢 𝚊𝚗𝚍 𝚏𝚞𝚗 𝚌𝚘𝚖𝚎 𝚝𝚘 𝚕𝚒𝚏𝚎🎉! 
 
-## Here at Freddy's🐻, our aim is to entertain! Enjoy our hand-made pizzas, with dough kneaded in-house, using only the very freshest of ingredients! Here, the only limits to the types of toppings on your pizza is your imaginations🤗! Want a pizza with chocolate chips and whip cream😻? You can have one!🤩
+## 𝙷𝚎𝚛𝚎 𝚊𝚝 𝙵𝚛𝚎𝚍𝚍𝚢'𝚜🐻, 𝚘𝚞𝚛 𝚊𝚒𝚖 𝚒𝚜 𝚝𝚘 𝚎𝚗𝚝𝚎𝚛𝚝𝚊𝚒𝚗! 𝙴𝚗𝚓𝚘𝚢 𝚘𝚞𝚛 𝚑𝚊𝚗𝚍-𝚖𝚊𝚍𝚎 𝚙𝚒𝚣𝚣𝚊𝚜, 𝚠𝚒𝚝𝚑 𝚍𝚘𝚞𝚐𝚑 𝚔𝚗𝚎𝚊𝚍𝚎𝚍 𝚒𝚗-𝚑𝚘𝚞𝚜𝚎, 𝚞𝚜𝚒𝚗𝚐 𝚘𝚗𝚕𝚢 𝚝𝚑𝚎 𝚟𝚎𝚛𝚢 𝚏𝚛𝚎𝚜𝚑𝚎𝚜𝚝 𝚘𝚏 𝚒𝚗𝚐𝚛𝚎𝚍𝚒𝚎𝚗𝚝𝚜! 𝙷𝚎𝚛𝚎, 𝚝𝚑𝚎 𝚘𝚗𝚕𝚢 𝚕𝚒𝚖𝚒𝚝𝚜 𝚝𝚘 𝚝𝚑𝚎 𝚝𝚢𝚙𝚎𝚜 𝚘𝚏 𝚝𝚘𝚙𝚙𝚒𝚗𝚐𝚜 𝚘𝚗 𝚢𝚘𝚞𝚛 𝚙𝚒𝚣𝚣𝚊 𝚒𝚜 𝚢𝚘𝚞𝚛 𝚒𝚖𝚊𝚐𝚒𝚗𝚊𝚝𝚒𝚘𝚗𝚜🤗! 𝚆𝚊𝚗𝚝 𝚊 𝚙𝚒𝚣𝚣𝚊 𝚠𝚒𝚝𝚑 𝚌𝚑𝚘𝚌𝚘𝚕𝚊𝚝𝚎 𝚌𝚑𝚒𝚙𝚜 𝚊𝚗𝚍 𝚠𝚑𝚒𝚙 𝚌𝚛𝚎𝚊𝚖😻? 𝚈𝚘𝚞 𝚌𝚊𝚗 𝚑𝚊𝚟𝚎 𝚘𝚗𝚎!🤩
 
-## Or, if you rather drop all your pretenses, we also offer dessert items such as Cupcakes🧁 and Birthday Cakes🎂! While you enjoy your food, you'll be treated to a performance by our in-house band🎶: 
+## 𝙾𝚛, 𝚒𝚏 𝚢𝚘𝚞 𝚛𝚊𝚝𝚑𝚎𝚛 𝚍𝚛𝚘𝚙 𝚊𝚕𝚕 𝚢𝚘𝚞𝚛 𝚙𝚛𝚎𝚝𝚎𝚗𝚜𝚎𝚜, 𝚠𝚎 𝚊𝚕𝚜𝚘 𝚘𝚏𝚏𝚎𝚛 𝚍𝚎𝚜𝚜𝚎𝚛𝚝 𝚒𝚝𝚎𝚖𝚜 𝚜𝚞𝚌𝚑 𝚊𝚜 𝙲𝚞𝚙𝚌𝚊𝚔𝚎𝚜🧁 𝚊𝚗𝚍 𝙱𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝙲𝚊𝚔𝚎𝚜🎂! 𝚆𝚑𝚒𝚕𝚎 𝚢𝚘𝚞 𝚎𝚗𝚓𝚘𝚢 𝚢𝚘𝚞𝚛 𝚏𝚘𝚘𝚍, 𝚢𝚘𝚞'𝚕𝚕 𝚋𝚎 𝚝𝚛𝚎𝚊𝚝𝚎𝚍 𝚝𝚘 𝚊 𝚙𝚎𝚛𝚏𝚘𝚛𝚖𝚊𝚗𝚌𝚎 𝚋𝚢 𝚘𝚞𝚛 𝚒𝚗-𝚑𝚘𝚞𝚜𝚎 𝚋𝚊𝚗𝚍🎶: 
 
-# Freddy Fazbear🎤🐻! 
+# `𝐅𝐫𝐞𝐝𝐝𝐲 𝐅𝐚𝐳𝐛𝐞𝐚𝐫🎤🐻!`
 
 ![survive 'till 6 am](https://i.pinimg.com/564x/61/db/f0/61dbf05f1f310215680d5cf935c8eb0a.jpg)
 
 
-## Featuring Freddy and his friends: 
+## 𝙵𝚎𝚊𝚝𝚞𝚛𝚒𝚗𝚐 𝙵𝚛𝚎𝚍𝚍𝚢 𝚊𝚗𝚍 𝚑𝚒𝚜 𝚏𝚛𝚒𝚎𝚗𝚍𝚜:
 
-# Bonnie The Bunny🎸🐰!
+# `𝐁𝐨𝐧𝐧𝐢𝐞 𝐓𝐡𝐞 𝐁𝐮𝐧𝐧𝐲🎸🐰!`
 
 ![always watch the cameras](https://i.pinimg.com/564x/9b/f3/9c/9bf39cbba6b673ae6847357c13b54d46.jpg)
 
-# Chika The Chicken🎹🐔!
+# `𝐂𝐡𝐢𝐤𝐚 𝐓𝐡𝐞 𝐂𝐡𝐢𝐜𝐤𝐞𝐧🎹🐔!`
 
 ![put on your mask](https://i.pinimg.com/564x/d7/9a/d5/d79ad592b9db3c5cb2524d7404bef21d.jpg)
 
-## But the fun doesn't stop there! On your way out, don't for get to stop by Pirate's Cove to say hello to one of Freddy's other friend: 
+## 𝙱𝚞𝚝 𝚝𝚑𝚎 𝚏𝚞𝚗 𝚍𝚘𝚎𝚜𝚗'𝚝 𝚜𝚝𝚘𝚙 𝚝𝚑𝚎𝚛𝚎! 𝙾𝚗 𝚢𝚘𝚞𝚛 𝚠𝚊𝚢 𝚘𝚞𝚝, 𝚍𝚘𝚗'𝚝 𝚏𝚘𝚛 𝚐𝚎𝚝 𝚝𝚘 𝚜𝚝𝚘𝚙 𝚋𝚢 𝙿𝚒𝚛𝚊𝚝𝚎'𝚜 𝙲𝚘𝚟𝚎 𝚝𝚘 𝚜𝚊𝚢 𝚑𝚎𝚕𝚕𝚘 𝚝𝚘 𝚘𝚗𝚎 𝚘𝚏 𝙵𝚛𝚎𝚍𝚍𝚢'𝚜 𝚘𝚝𝚑𝚎𝚛 𝚏𝚛𝚒𝚎𝚗𝚍:
 
-# Foxy the Fox🏴‍☠️🦊! 
+# `𝐅𝐨𝐱𝐲 𝐭𝐡𝐞 𝐅𝐨𝐱🏴‍☠️🦊!`
 
 ![you can't run but you can hide](https://i.pinimg.com/564x/1d/7a/48/1d7a481b2633b5ebfac449b7f410fe6b.jpg)
 
 
-## Foxy often likes to regale visitors with tales of his old swashbuckling days, and has a special fondness for sea shanties.
+## 𝙵𝚘𝚡𝚢 𝚘𝚏𝚝𝚎𝚗 𝚕𝚒𝚔𝚎𝚜 𝚝𝚘 𝚛𝚎𝚐𝚊𝚕𝚎 𝚟𝚒𝚜𝚒𝚝𝚘𝚛𝚜 𝚠𝚒𝚝𝚑 𝚝𝚊𝚕𝚎𝚜 𝚘𝚏 𝚑𝚒𝚜 𝚘𝚕𝚍 𝚜𝚠𝚊𝚜𝚑𝚋𝚞𝚌𝚔𝚕𝚒𝚗𝚐 𝚍𝚊𝚢𝚜, 𝚊𝚗𝚍 𝚑𝚊𝚜 𝚊 𝚜𝚙𝚎𝚌𝚒𝚊𝚕 𝚏𝚘𝚗𝚍𝚗𝚎𝚜𝚜 𝚏𝚘𝚛 𝚜𝚎𝚊 𝚜𝚑𝚊𝚗𝚝𝚒𝚎𝚜.
 
-## All this and more awaits you at Freddy Fazbear's Pizza! Located at ********** Come on down, and let the fun begin! Or call us at:
+---
 
-# 1-800-083    
+## 𝙰𝚕𝚕 𝚝𝚑𝚒𝚜 𝚊𝚗𝚍 𝚖𝚘𝚛𝚎 𝚊𝚠𝚊𝚒𝚝𝚜 𝚢𝚘𝚞 𝚊𝚝 𝙵𝚛𝚎𝚍𝚍𝚢 𝙵𝚊𝚣𝚋𝚎𝚊𝚛'𝚜 𝙿𝚒𝚣𝚣𝚊! 𝙻𝚘𝚌𝚊𝚝𝚎𝚍 𝚊𝚝 ********** 𝙲𝚘𝚖𝚎 𝚘𝚗 𝚍𝚘𝚠𝚗, 𝚊𝚗𝚍 𝚕𝚎𝚝 𝚝𝚑𝚎 𝚏𝚞𝚗 𝚋𝚎𝚐𝚒𝚗! 𝙾𝚛 𝚌𝚊𝚕𝚕 𝚞𝚜 𝚊𝚝:
+
+## 1̵̼̳͇̰̓͠ͅ-̷̹͖̪̹̱̲̘̣̍̋̓͜8̷̡̞̺̻͐̈́̈0̶̥̃̓0̴̧̏͗̆̓͑̈́̐-̶̛̯̤̬̅̌̆͋̀͝0̴̡̞̝̰͔̗̖̭̟̃̔̏̐ͅ8̶̡̯̱͎͊̈́̑̿͒̕ͅͅ3̸̙̊͝
+
 > 📞😉
 
 ---
